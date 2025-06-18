@@ -23,7 +23,7 @@ Este portfólio reúne projetos, experiências e habilidades que desenvolvi ao l
 
 ## Contato
 
-- Email: seuemail@exemplo.com  
+- Email: luisham2001@gmail.com
 - LinkedIn: https://www.linkedin.com/in/seuusuario](https://www.linkedin.com/in/luis-henrique-marques-2960a6278
 
 ## Link
